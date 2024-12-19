@@ -1,4 +1,4 @@
-# Plants vs. Zombies Fusion APK Mod Meu Unduh Gratis Versi Terbaru Untuk Android 2024
+# Plants vs. Zombies Fusion APK Mod Meu Unduh Gratis Versi Terbaru Untuk Android 2025
 
 ## Apa itu Plants vs. Zombies Fusion APK?
 Plants vs. Zombies Fusion APK adalah versi modifikasi yang menarik dari game tower defense klasik dari PopCap Games dan Electronic Arts. APK ini menawarkan pengalaman baru dengan fitur unik, seperti kemampuan menggabungkan tanaman untuk menciptakan pelindung yang kuat melawan serangan zombie yang terus-menerus.
